@@ -15,10 +15,10 @@ company's growth and my
 personal development.
 ## 📫 How to reach me:
 - Phone: +94770456282
-- Email: amalathas0809@gmail.com
-- LinkedIn: Suthan Amalathas
+- Email: amalathassuthans@gmail.com
+- LinkedIn: [Suthan Amalathas] (www.linkedin.com/in/suthan-amalathas-20b808193)
 
-## 🎓 Education:
+## 🎓 Education: 
 - B.Sc. (Hons) in Industrial Mathematics, Rajarata University of Sri Lanka, 2019 - Present
 
 ## 🏆 Certifications:
